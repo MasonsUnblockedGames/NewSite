@@ -1,5 +1,2 @@
-# BLAZERGAMES
-BlazerGames
-
-*Subscribe to Blazer!!!*
-https://youtube.com/c/blazerhm
+# MASON'S UNLBKOCED GAMES
+Mason's Unblocked Games
